@@ -1,4 +1,5 @@
-You can 
-get in touch with me
-by chrishaha666666@126.com
-No way to hack me.(
+An NEYC student.
+
+A normal junior high school student.
+
+Don't contact me. Busy.
